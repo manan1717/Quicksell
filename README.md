@@ -1,1 +1,1 @@
-This a assignment provided byQuicksell
+This a assignment provided by Quicksell
